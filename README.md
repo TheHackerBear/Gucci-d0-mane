@@ -1,4 +1,3 @@
 Gucci-d0-mane
 =============
-
-Where all the Gucci hacks go
+We're gonna make a lotta of money :)
